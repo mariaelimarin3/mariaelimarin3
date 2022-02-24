@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @mariaelimarin3
+- 👀 I’m interested in cyber risk management.
+- 🌱 I’m currently learning cybersecurity operations.
+- 📫 How to reach me here. I have yet to collaborate and am a beginner in this space.
